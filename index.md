@@ -1,3 +1,5 @@
+![2022](https://image.panewslab.com/upload/image/20211217/S057646b9b6c24b568595f1c9ea2ebf21.jpg)
+
 # 挥别2021:加密圈黄金年代的开端，这些大事件值得记住
 
 ## 对于区块链和加密圈而言，2021年是充满戏剧性的一年，也是丰收的一年。
@@ -45,7 +47,7 @@ ___
 
 [抄录来源	](https://www.panewslab.com/zh/articledetails/1640926924838723.html)
 
-![2022](https://image.panewslab.com/upload/image/20211217/S057646b9b6c24b568595f1c9ea2ebf21.jpg)
+
 
 
 
